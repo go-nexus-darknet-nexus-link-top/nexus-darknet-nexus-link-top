@@ -56,4 +56,6 @@ When searching for a secure and reputable darknet marketplace, **Nexus Darknet n
 
 _Disclaimer: This article is for informational purposes only. Accessing or using darknet markets may be illegal in your country. Please adhere to all applicable laws._
 
-Update:  14 September 2025 url is now available online
+
+
+Update:  09/18/2025
